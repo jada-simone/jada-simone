@@ -1,0 +1,1 @@
+-🌱Hi, I’m @jada-simone and am currently an entry-level front-end developer.
